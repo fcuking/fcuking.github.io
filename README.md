@@ -1,3 +1,2 @@
 # fcuking.github.io
-asd asasdcghdfym
-dfjr
+เกรียงเดช จันทร์ฉาย Kriengdet Janchai 13610006
